@@ -1,3 +1,3 @@
-# ssfsddfsdf
+#Practice
 
-sfadf d fdas f asdf asdf 
+This is the first post of a series of first posts!
